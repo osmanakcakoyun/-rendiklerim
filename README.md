@@ -1,1 +1,1 @@
-# -rendiklerim
+# uygulamalarım
